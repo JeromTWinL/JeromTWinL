@@ -2,12 +2,9 @@
 
 Check my repositories
 
-I'm currently using Windows 10 arm64
+[Join My Discord!](https://discord.gg/qd3c5WFmkU)
 
-[![discord](https://github.com/JeromTWinL/JeromTWinL/raw/main/joindiscord.png)](https://discord.gg/qd3c5WFmkU)
-
-
-[![follow me](https://github.com/JeromTWinL/JeromTWinL/raw/main/followme.png)](https://github.com/JeromTWinL)
+Or My Discord ID: JeromTWinL#8448
 
 My Stats:
 
